@@ -1,0 +1,2 @@
+# unemployed
+무직
